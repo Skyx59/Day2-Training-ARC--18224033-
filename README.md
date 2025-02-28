@@ -1,1 +1,1 @@
-# Day2-Training-ARC--18224033-
+Tugas ARC Day 2
